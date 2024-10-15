@@ -1,13 +1,8 @@
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/ka02rf.gif"/></p        
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/y77lec.png"/></p        
                                                                                         
-<p align="center"><img src="https://files.catbox.moe/73e5h1.png"/></p        
-           
-<p align="center">
-<p align="center"><img src="https://files.catbox.moe/6i1r0w.jpg"/></p
-
 <p align="center">
 
-
+<p align="center">
                                                                     
 <p align="center"> <p align="center"> 𝚑𝚒𝚑𝚒 𝚐𝚊𝚗𝚐, 𝚝𝚑𝚊𝚗𝚔𝚣 𝟺 𝚌𝚕𝚒𝚌𝚔𝚒𝚗𝚐 𝚘𝚗 𝚖𝚢 𝚙𝚏!
 <p align="center"> 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚘𝚏𝚏𝚝𝚊𝚋 𝚘𝚛 𝚊𝚏𝚔.
@@ -31,13 +26,8 @@
   
 <p align="center"> 𝙳𝚘𝚗𝚝 𝚝𝚊𝚔𝚎 𝚒𝚗𝚜𝚙𝚘 𝚗𝚘𝚛 𝚌𝚘𝚙𝚢 𝚖𝚢 𝚜𝚔𝚒𝚗𝚜 𝚙𝚕𝚜.<p align="center">
 <p align="center"> <p align="center"> 
-                                                                    
-<p align="center"> <p align="center"><img src="https://files.catbox.moe/p78fe6.gif"/></p
 
-<p align="center"><img src="https://files.catbox.moe/ivwneg.png"/></p   
-                                                                    
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/b44y89.png"/></p                                                                                                                                           
 <p align="center">
-                                                                                             
-<p align="center"><img src="https://files.catbox.moe/6i1r0w.jpg"/></p
-
-<p align="center">  <p align="center"><img src="https://files.catbox.moe/v7snwf.png"/></p   
+                                                                                            
+<p align="center">  <p align="center"><img src="https://files.catbox.moe/s5rfl5.png"/></p   
